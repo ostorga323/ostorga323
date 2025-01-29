@@ -1,5 +1,4 @@
 ## Hi there 👋
-
 #📫 How to reach me: aostorg2@calstatela.edu
 #😄 Pronouns: She/Her/Hers
 #⚡ Fun fact: I love to sew. 
