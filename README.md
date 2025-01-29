@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+#📫 How to reach me: aostorg2@calstatela.edu
+#😄 Pronouns: She/Her/Hers
+#⚡ Fun fact: I love to sew. 
+
 <!--
 **ostorga323/ostorga323** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
